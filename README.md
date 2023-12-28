@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @exodussec5
+- 👀 I’m interested in Security Reasearch
+- 🌱 I’m currently learning EVERYTHING
+- 💞️ I’m looking to collaborate on EVERYTHING
